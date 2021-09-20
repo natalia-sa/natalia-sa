@@ -1,4 +1,4 @@
 Olá 👋
 
-- 📫 E-mail: natalia.andre@ccc.ufcg.edu.br
+- 📫 E-mail: nataliasalvino86@gmail.com
 
